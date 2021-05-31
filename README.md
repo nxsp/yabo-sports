@@ -13,5 +13,7 @@
 
 ------------
 
+**推荐亚博旗下最好的天博地址：**
+[http://www.tbbet2040.vip](http://www.tbbet2040.vip "http://www.tbbet2040.vip")
 
 如果因各种原因，以上方法都不行，可以发送邮件到 yabo-sports@outlook.com  # 换成 @ ，索取最新地址。
