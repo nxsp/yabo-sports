@@ -1,4 +1,4 @@
-# 欧宝地址发布页
+# 欧宝娱乐地址发布页
 **欧宝娱乐永久域名：**[https://www.oubao-sports.com](https://www.oubao-sports.com "https://www.oubao-sports.com")
 
 **获取最新域名可以发送邮件至 bcsports365@outlook.com**
